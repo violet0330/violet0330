@@ -1,5 +1,5 @@
 ### 朋友你好(*´▽｀)ノノ，我是冯雨宁 😄
-### Hi I'm Yuning Feng, you can also call me Violet 🪄
+### Hi~ o(*￣▽￣*)ブ I'm Yuning Feng, you can also call me Violet 🪄
 
 🦾 Still a student, a newcomer
 
